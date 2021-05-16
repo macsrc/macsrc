@@ -1,4 +1,4 @@
-👋 Hi, I’m @macsrc.
+👋 Hi, I’m @Mac S.
 
 👀 I’m interested in Enterprise solutions.
 
